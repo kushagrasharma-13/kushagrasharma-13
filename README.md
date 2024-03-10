@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sharmakushagra295@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZZowIvPUh6uyFhuPsRaNxTUhN0Cgl15s/view?usp=sharing](https://drive.google.com/file/d/1ZZowIvPUh6uyFhuPsRaNxTUhN0Cgl15s/view?usp=sharing)
+- 📄 My Resume: [Kushagra_Sharma_Resume](https://drive.google.com/file/d/1ZZowIvPUh6uyFhuPsRaNxTUhN0Cgl15s/view?usp=sharing)
 
 - ⚡ Fun fact **Space is completely silent.**
 
